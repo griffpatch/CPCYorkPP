@@ -1,31 +1,32 @@
 body {
 	background-color: #fdfdfd;
-	padding:10px 48px;
+	margin:0 32 32px;
 }
 
 .container {
-  font-size: 14px;
-  line-height: 1.6;
-  font-weight: 300;
+	font-size: 14px;
+	line-height: 1.6;
+	font-weight: 300;
 	-moz-osx-font-smoothing: grayscale;
-  -webkit-font-smoothing: antialiased;
+	-webkit-font-smoothing: antialiased;
 	font-family: "Helvetica Neue", Helvetica, Arial, sans-serif;
 	color: #333333;
 }
 
 h1 {
-  display: block;
-  background-color: #fafbf2;
-  height: 50px;
-  font-size: 26px;
-  line-height: 2em;
-  text-align: center;
-  box-shadow: 0 2px 8px rgba(0,0,0,0.1);
-  color: #277488;
+	margin: 0 -32px 32px;
+	display: block;
+	background-color: #fafbf2;
+	height: 50px;
+	font-size: 26px;
+	line-height: 2em;
+	text-align: center;
+	box-shadow: 0 2px 8px rgba(0,0,0,0.1);
+	color: #277488;
 }
 
 h2 {
-  color: #277488;
-  font-weight: 300;
-  font-size:20px;
+	color: #277488;
+	font-weight: 300;
+	font-size:20px;
 }
