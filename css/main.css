@@ -19,6 +19,7 @@ h1 {
 	background-color: #fafbf2;
 	height: 50px;
 	font-size: 26px;
+	font-weight: 300;
 	line-height: 2em;
 	text-align: center;
 	box-shadow: 0 2px 8px rgba(0,0,0,0.1);
