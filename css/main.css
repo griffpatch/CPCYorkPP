@@ -39,3 +39,8 @@ p {
 li > ul {
     margin: 0.4em 0 1.5em;
 }
+
+a {
+	text-decoration: none;
+	color: #277488;
+}
