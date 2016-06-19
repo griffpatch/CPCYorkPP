@@ -29,6 +29,7 @@ If you would like to grow in prayer
   + Join our CPC 11am service intercessions team (Contact details Monica)
   + CMC/ST Marks??
 
+
 + **Up & Coming Prayer Events at Clifton Parish**
   + Come to the Prayer Course: (Intro, dates, times, venue, contact info)
   + Come to our Saturday Early Prayers St Marks (Intro, dates, times, venue)
@@ -38,6 +39,7 @@ If you would like to grow in prayer
   + Come to our Prayer Ministry Training sessions (Intro, dates, times, venue, contact info)
   + ANY OTHERS FROM CMC/St Marks
   + Links to any events that can be booked online (24/7 prayer)
+
 
 + **Up & Coming Prayer Events across our City**
   + The Gathering at the YHoP: Join with other churches across our city to pray and worship (http://www.yhop.co.uk/)
