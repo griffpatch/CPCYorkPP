@@ -18,7 +18,7 @@ h1 {
 	display: block;
 	background-color: #fafbf2;
 	height: 50px;
-	font-size: 26px;
+	font-size: 1.85em;
 	font-weight: 300;
 	line-height: 2em;
 	text-align: center;
@@ -29,5 +29,9 @@ h1 {
 h2 {
 	color: #277488;
 	font-weight: 300;
-	font-size:20px;
+	font-size:1.5em;
+}
+
+p {
+	margin:	1em 0 1.8em;
 }
