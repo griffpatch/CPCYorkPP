@@ -15,7 +15,6 @@ We want to be channels of God’s amazing grace and serve out of love and compas
 +	In obedience to THE FATHER (John 3:16; Galatians 4:4-8)
 +	As servants of THE SON (Jesus), modelling ourselves on him and helping others find encouragement, forgiveness and healing in him (Mark 10:45)
 +	In the power of the HOLY SPIRIT as we welcome his presence, trust in his guidance and use his gifts (Acts 1:8; 1 Corinthians 12:7)
-+	
 
 **HOW**
 +	We will respect your dignity
