@@ -40,7 +40,6 @@ We believe that we must all test prophecy & judging prophecy is a collective res
 We believe we can test prophecy by discerning “the spirit behind prophesy” (1 John 4:1) by the gift of the Holy Spirit (1 Cor12:10) & through training (Hebrews 5:14).
  
 We’ll know a prophecy is from God because:
-
 +	He is always motivated by love (1 John 4:8)
 +	The things God says are always good (Psalm 136:1; Luke 18:19; Mark 10:18)
 +	The things God says are always perfect (Psalm 18:30)
