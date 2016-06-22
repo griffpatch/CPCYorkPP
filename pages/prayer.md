@@ -65,5 +65,6 @@ Our condensed Prayer Ministry Guidelines
 +	We will not give directives about jobs, marriage, births or deaths
 +	We will not give teaching 
 + We will always minister to you in pairs for accountability and safety
+
 NB. Our full guidelines are posted in our secure resources area
 
