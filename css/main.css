@@ -6,7 +6,7 @@ body {
 .container {
 	font-family: "Verdana", sans-serif;
     	color: #277488;
-    	font-size: 14.0px;
+    	font-size: 13px;
     	line-height: 1.21em;
     
 	-moz-osx-font-smoothing: grayscale;
@@ -29,7 +29,7 @@ h2 {
 	font-family: "Verdana", sans-serif;
 	font-weight: 700;
 	color: #808000;
-	font-size: 13.0px;
+	font-size: 14px;
 	line-height: 1.23em;
 	margin-top: 1.4em;
 }
