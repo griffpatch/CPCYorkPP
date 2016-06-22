@@ -20,4 +20,4 @@ Our secure documents (church member login required)
 +	PIP Documents
 +	Prayer Team Important Dates (e.g. meetings with leadership etc.)
 
-<a href='https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing' target='_blank'>Click here to login and view secure documents</a>
+[Click here to login and view secure documents](https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing){:target="_blank"}
