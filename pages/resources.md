@@ -11,7 +11,7 @@ Recommended reading
 -------------------
 Reading list posted here...
 
-For our secure documents church members login, for:
+Our secure documents (church member login required)
 ---------------------------------------------------
 +	Our Prayer Ministry Guidelines
 +	Our Prayer Ministry Training Notes
@@ -19,3 +19,5 @@ For our secure documents church members login, for:
 +	Our Prophetic Ministry Weighing Guidelines
 +	PIP Documents
 +	Prayer Team Important Dates (e.g. meetings with leadership etc.)
+
+<a href='https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing' target='_blank'>Click here to login and view secure documents</a>
