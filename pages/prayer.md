@@ -50,11 +50,13 @@ Our condensed Prayer Ministry Guidelines
 **AIM** The aim of our guidelines is to provide a common framework for Prayer Ministry – which is prayer with the laying on of hands – so that we can provide a safe and consistently positive experience, for those who receive this ministry at Clifton Parish.
  
 **WHY** We want to be channels of God’s amazing grace and serve out of love and compassion (Mark 1:41) and we aim to minister:
+
 +	In obedience to THE FATHER (John 3:16; Galatians 4:4-8)
 +	As servants of THE SON (Jesus), modelling ourselves on him and helping others find encouragement, forgiveness and healing in him (Mark 10:45)
 +	In the power of the HOLY SPIRIT as we welcome his presence, trust in his guidance and use his gifts (Acts 1:8; 1 Corinthians 12:7)
 
 **HOW** We will love you and respect your dignity
+
 +	Should we lay hands on you we will always ask your permission first and it's no problem if you say no
 +	We will be able to annoit you with oil if you would like us to
 +	We will have a bible nearby ready to share Scripture should something come to mind
@@ -64,7 +66,7 @@ Our condensed Prayer Ministry Guidelines
 +	We will NOT stray into counselling; pray loudly in tongues; or advise/suggest/hint any discontinuation of medical treatment or medicine
 +	We will not give directives about jobs, marriage, births or deaths
 +	We will not give teaching 
-+ We will always minister to you in pairs for accountability and safety
++   We will always minister to you in pairs for accountability and safety
 
 NB. Our full guidelines are posted in our secure resources area.
 
