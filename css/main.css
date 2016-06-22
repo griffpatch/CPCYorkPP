@@ -1,16 +1,16 @@
 body {
-	background-color: #fdfdfd;
+	background-color: white;
 	margin:0 32px 32px;
 }
 
 .container {
-	font-size: 14px;
-	line-height: 1.6;
-	font-weight: 300;
+	font-family: "Verdana", sans-serif;
+    	color: #277488;
+    	font-size: 14.0px;
+    	line-height: 1.21em;
+    
 	-moz-osx-font-smoothing: grayscale;
 	-webkit-font-smoothing: antialiased;
-	font-family: "Helvetica Neue", Helvetica, Arial, sans-serif;
-	color: #333333;
 }
 
 h1 {
@@ -26,10 +26,12 @@ h1 {
 }
 
 h2 {
-	color: #277488;
-	font-weight: 300;
-	font-size:1.5em;
-	margin-top:1.4em;
+	font-family: "Verdana", sans-serif;
+	font-weight: 700;
+	color: #808000;
+	font-size: 13.0px;
+	line-height: 1.23em;
+	margin-top: 1.4em;
 }
 
 p {
@@ -41,6 +43,13 @@ li > ul {
 }
 
 a {
-	text-decoration: none;
+	text-decoration: underline;
+}
+
+a, a:visited, a:link {
+	color: #277488;
+}
+
+ {
 	color: #277488;
 }
