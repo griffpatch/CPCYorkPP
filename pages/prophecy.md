@@ -1,3 +1,9 @@
+---
+layout: page
+title: Prophecy
+description: Prophecy
+---
+
 Prophecy
 ========
 
