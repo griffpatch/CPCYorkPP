@@ -1,3 +1,9 @@
+---
+layout: page
+title: Resources
+description: Prayer & Prophecy Resources
+---
+
 Resources
 =========
 
