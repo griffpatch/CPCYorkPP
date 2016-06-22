@@ -1,5 +1,11 @@
-Prayer & Prophesy Contact Info Page
-===================================
+---
+layout: page
+title: Contact
+description: Prayer & Prophesy Contact Info
+---
+
+Prayer & Prophesy Contact Info
+==============================
 If you’d like more info on Prayer and Prophetic Ministry here at Clifton Parish, please do feel free to contact us:
 Church Leadership: 
 
