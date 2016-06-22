@@ -5,7 +5,7 @@ Prayers for different occasions
 -------------------------------
 Prayers for different occasions written by Geraldine could go here...
 
-Our (Condensed) Prayer Ministry Guidelines
+Our condensed Prayer Ministry Guidelines
 ------------------------------------------
 **AIM**
 The aim of our guidelines is to provide a common framework for Prayer Ministry – which is prayer with the laying on of hands – so that we can provide a safe and consistently positive experience, for those who receive this ministry at Clifton Parish.
@@ -30,8 +30,8 @@ We want to be channels of God’s amazing grace and serve out of love and compas
 NB. Our full guidelines are posted in our secure resources area
 
 
-Our guidelines to weighing prophecy 
------------------------------------
+Our condensed guidelines to weighing prophecy 
+---------------------------------------------
 We believe that true prophesy originates in the heart of God. 
 We believe that we must all test prophecy & judging prophecy is a collective responsibility (1 John 4:1; 1 Cor14:29) 
 We believe we can test prophecy by discerning “the spirit behind prophesy” (1 John 4:1) by the gift of the Holy Spirit (1 Cor12:10) & through training (Hebrews 5:14).
@@ -63,7 +63,9 @@ Reading list posted here...
 
 For our secure documents church members login, for:
 ---------------------------------------------------
++	Our Prayer Ministry Guidelines
 +	Our Prayer Ministry Training Notes
 +	Our latest Prayer Ministry Rota for the term
++	Our Prophetic Ministry Weighing Guidelines
 +	PIP Documents
 +	Prayer Team Important Dates (e.g. meetings with leadership etc.)
