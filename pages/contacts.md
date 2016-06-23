@@ -10,12 +10,14 @@ If you’d like more info on Prayer and Prophetic Ministry here at Clifton Paris
 
 Church Leadership
 -----------------
-David Casswell 
+David Casswell
+
 Peter Hallsworth
 
 Prayer Chain
 ------------
 Margaret
+
 David Casswell
 
 CPC Intercessions
@@ -25,6 +27,7 @@ Monica
 CPC Prayer Ministry
 -------------------
 Susie Young 
+
 Mits Griffin (mits@griffpatch.co.uk)
 
 St Marks
