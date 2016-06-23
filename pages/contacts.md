@@ -35,6 +35,7 @@ St Marks
 
 Clifton Moor Church
 -------------------
+http://www.cliftonmoor.org.uk/Prayer_request.html
 
 St Bedes Course
 ---------------
