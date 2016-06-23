@@ -10,15 +10,15 @@ If you’d like more info on Prayer and Prophetic Ministry here at Clifton Paris
 
 Church Leadership
 -----------------
-David Casswell
+David Casswell (01904) 655071 Email:davecasswell@gmail.com
 
-Peter Hallsworth
+Peter Hallsworth (01904) 637335 Email:petermhallsworth@gmail.com
 
 Prayer Chain
 ------------
-Margaret
+Margaret (01904) 621810
 
-David Casswell
+David Casswell (01904) 655071
 
 CPC Intercessions
 -----------------
