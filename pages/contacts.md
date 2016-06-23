@@ -22,7 +22,7 @@ David Casswell (01904) 655071
 
 CPC Intercessions
 -----------------
-Monica
+Monica Dunham
 
 CPC Prayer Ministry
 -------------------
