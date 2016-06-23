@@ -28,7 +28,7 @@ CPC Prayer Ministry
 -------------------
 Susie Young 
 
-Mits Griffin (mits@griffpatch.co.uk)
+Mits Griffin Email:mits@griffpatch.co.uk
 
 St Marks
 --------
