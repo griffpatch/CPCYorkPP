@@ -6,7 +6,7 @@ description: Landing
 
 **Welcome!!** To the Prayer and Prophecy part of our website!!
 
-For more info on our values, what we offer and how you can get involved, follow our tabs
+For more info on our values, what we offer and how you can get involved, follow our tabs under our Prayer & Prophecy menu on the left
 
 + **Prayer** For lots of info concerning Prayer and our latest Prayer Events at Clifton Parish
 + **Prophecy** For lots of info concerning Prophecy at Clifton Parish
