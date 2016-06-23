@@ -38,5 +38,5 @@ Clifton Moor Church
 
 St Bedes Course
 ---------------
-Geraldine Caswell
+Geraldine Casswell
 
