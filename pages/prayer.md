@@ -10,7 +10,7 @@ Prayer
 Our values
 ----------
 
-We believe that prayer is simply talking with God. And we believe prayer is the start of everything (Go through ideas with DC etc.)
+We believe that prayer is simply talking with God. And we believe prayer is the start of everything (Go through ideas with DC etc...)
 
 If you need prayer
 ------------------
