@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Prayer
-description: A Test page for Prayer
+description: Prayer Page
 ---
 
 Prayer
