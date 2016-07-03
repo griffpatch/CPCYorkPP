@@ -21,6 +21,7 @@ I am not a bullet
 
 + I am the first bullet
 + I am the second bullet
+  + I am an indented bullet with a Tab space before my cross   
 
 I am not a bullet
 
