@@ -16,3 +16,11 @@ To create a title write your text and on the line below type in a broken line
 ------------------------------------------------------------------------------
 
 I am **bold text** because I have two stars around me
+
+I am not a bullet
+
++ I am the first bullet
++ I am the second bullet
+
+I am not a bullet
+
