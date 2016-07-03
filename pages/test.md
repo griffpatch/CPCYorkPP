@@ -14,6 +14,8 @@ Have a go editing this file and then "Commit changes" (the green button at the b
 
 This is how I make a title
 --------------------------
+And all the text below is not the title but other things I'd like to say
+
 
 I am **bold text** because I have two stars around me
 
