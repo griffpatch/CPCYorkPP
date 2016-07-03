@@ -14,3 +14,5 @@ Have a go editing this file and then "Commit changes" (the green button at the b
 
 To create a title write your text and on the line below type in a broken line
 ------------------------------------------------------------------------------
+
+I am **bold text** because I have two stars around me
