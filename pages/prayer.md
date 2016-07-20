@@ -10,12 +10,12 @@ Prayer
 Our values
 ----------
 
-We believe that prayer is simply talking with God. And we believe prayer is the start of everything (Go through ideas with DC etc...)
+We believe that prayer is simply talking with God. And we believe prayer is the start of everything.
 
 If you need prayer
 ------------------
 
-+	**Prayer Chain:** If you or anybody you know needs prayer, be added onto our Prayer Chain where we will pray for you (DC perhaps you could write a little something here about what it is, who to contact etc)
++	**Prayer Chain:** If you or anybody you know needs prayer, be added onto our Prayer Chain where we will pray for you 
 
 +	**Prayer ministry:** After our 11am Family Service at CPC we offer prayer ministry, which is a prayer of blessing over you through the laying on of hands. This is done confidentially with as much privacy as possible. There is no need for you to share anything in any depth, although we will always ask if there is anything in particular you would like prayer for. Everybody is welcome for prayer, even if it’s just to have a blessing. There will always be two of us who have been trained in prayer ministry, who will pray blessing over you and if needed, you can be anointed with holy oil. Please note, that this is not a counselling ministry (for counselling please contact: David Casswell <davecasswell@gmail.com> or The Spuriergate Centre)
 
@@ -27,19 +27,18 @@ If you would like to grow in prayer
 -----------------------------------
 
 + **Join one of our prayer teams**
-  + Join our CPC Prayer Ministry team (Contact details Susie Young & Mits Griffin mits@griffpatch.co.uk)
-  + Join our CPC 11am service intercessions team (Monica's Contact Details)
-  + Join our CPC Annoiting Team (Val's Contact Details)
-  + Join our St Marks Prayer Team (Cathie/Peter's Contact Details)
+  + Join our CPC Prayer Ministry team (Contact details Susie Young susieinyork@gmail.com & Mits Griffin mits@griffpatch.co.uk)
+  + Join our CPC 11am service intercessions team (Monica Dunham  monicadunham@dsl.pipex.com or 07875-089487)
+  + Join our CPC Annoiting Team (Val Myers)
+  + Join our St Marks Prayer Team (Cathie Hallsworth cathie.hallsworth@outlook.com & Peter Hallsworth petermhallsworth@gmail.com)
 
 + **Up & Coming Prayer Events at Clifton Parish**
-  + Come to our Saturday Early Prayers St Marks (Intro, dates, times, venue)
-  + Come to PIP (Prophetic Intercession for our Parish): First Saturday every month, St Marks, 9.30-10.30am
-    (Contact mits & Susie for more info)  
-  + Come to our CPC 11am Service pre-service prayers: Every Sunday at CPC, 10.30am-11am, Melrose Room
-  + Come to our Prayer Ministry Training sessions (Intro, dates, times, venue, contact info)
-  + ANY OTHERS FROM CMC/St Marks
-  + Links to any events that can be booked online (24/7 prayer)
+  + Come to our Monday Prayer Meeting: 9-9.45am Mondays Clifton Parish
+  + Come to our Saturday Early Prayers St Marks: 8.30-9.30am Saturdays St Marks
+  + Come to PIP (Prophetic Intercession for our Parish): First Saturday every month, St Marks, 9.30-10.30am (Contact mits mits@griffpatch.co.uk & Susie for more info susieinyork@gmail.com)  
+  + Come to our CPC 11am Service pre-service prayers: Every Sunday at Clifton Parish, 10.30am-11am, Melrose Room
+  + Come to our Prayer Ministry Training sessions (Next Training: October 2016 "Different ways to Pray")
+  + Links to any events that can be booked online (24/7 prayer) Watch this Space!!
 
 + **Up & Coming Prayer Events across our City**
   + The Gathering at the YHoP: Join with other churches across our city to pray and worship (<http://www.yhop.co.uk/>)
