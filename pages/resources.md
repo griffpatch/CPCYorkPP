@@ -25,7 +25,7 @@ Prayer
 
 Prophecy
 
-+ Translating God: Hearing God's Voice for Yourself and the World Around You Shawn Bolz)
++ Translating God: Hearing God's Voice for Yourself and the World Around You (Shawn Bolz)
 + Approaching the Heart of Prophecy (Graham Cooke)
 + Prophecy and Responsibility (Graham Cooke)
 + Prophetic Wisdom (Graham Cooke)
