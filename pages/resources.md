@@ -9,7 +9,7 @@ Resources
 
 Prayers for different occasions
 -------------------------------
-Prayers for different occasions written by Geraldine (watch this Space!!)
+Prayers for different occasions written by Geraldine (watch this space!!)
 
 
 
