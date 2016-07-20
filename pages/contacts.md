@@ -19,7 +19,7 @@ Prayer Chain
 ------------
 Margaret (01904) 621810
 
-David Casswell (01904) 655071
+David Casswell (01904) 655071 Email:davecasswell@gmail.com
 
 
 CPC Intercessions
@@ -32,19 +32,19 @@ Intercession is prayer for other people – often people we don’t know and wil
 
 CPC Annoiting Prayer Team
 -----------------
-Val Myers (Val please add whatever contact info you like here...)
+Val Myers 
 
 
 CPC Prayer Ministry
 -------------------
-Susie Young (Susie please add whatever contact info you like here...)
+Susie Young Email:susieinyork@gmail.com
 
 Mits Griffin Email:mits@griffpatch.co.uk
 
 
 St Marks
 --------
-Cathie Hallsworth (Cathie please add whatever contact info you like here...)
+Cathie Hallsworth 
 
 Peter Hallsworth (01904) 637335 Email:petermhallsworth@gmail.com
 
@@ -56,5 +56,5 @@ http://www.cliftonmoor.org.uk/Prayer_request.html
 
 St Bedes Course
 ---------------
-Geraldine Casswell (Geraldine please add whatever contact info you like here...)
+Geraldine Casswell 
 
