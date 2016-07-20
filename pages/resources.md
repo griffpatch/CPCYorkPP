@@ -15,6 +15,10 @@ Prayers for different occasions written by Geraldine (watch this Space!!)
 
 Recommended reading
 -------------------
+Prayer
++ Prayer: Does It Make Any Difference? (Philip Yancy)
++ The Power of Simple Prayer: How to Talk to God about Everything (Joyce Meyer)
+
 Prophecy
 + Approaching the Heart of Prophecy (Graham Cooke)
 + Prophecy and Responsibility (Graham Cooke)
