@@ -19,7 +19,7 @@ If you need prayer
 
 +	**Prayer ministry:** After our 11am Family Service at CPC we offer prayer ministry, which is a prayer of blessing over you through the laying on of hands. This is done confidentially with as much privacy as possible. There is no need for you to share anything in any depth, although we will always ask if there is anything in particular you would like prayer for. Everybody is welcome for prayer, even if it’s just to have a blessing. There will always be two of us who have been trained in prayer ministry, who will pray blessing over you and if needed, you can be anointed with holy oil. Please note, that this is not a counselling ministry (for counselling please contact: David Casswell <davecasswell@gmail.com> or The Spuriergate Centre)
 
-+	**Annoiting ministry:** At our Communion Services we offer Annoiting with oil. Do come up for this blessing when directed.
++	**Anoiting ministry:** At our Communion Services we offer Annoiting with oil. Do come up for this blessing when directed.
 
 +	**SOZO ministry:** SOZO is an inner healing and deliverance ministry (with sessions usually lasting between 1-1.5 hours). Although we do not offer this Ministry within Clifton Parish, this ministry is available for all church-goers from 2017 at the York House of Prayer (YHoP). Please see the YHoP website for more info: <http://www.yhop.co.uk/>
 
@@ -29,7 +29,7 @@ If you would like to grow in prayer
 + **Join one of our prayer teams**
   + Join our CPC Prayer Ministry team (Contact details Susie Young susieinyork@gmail.com & Mits Griffin mits@griffpatch.co.uk)
   + Join our CPC 11am service intercessions team (Monica Dunham  monicadunham@dsl.pipex.com or 07875-089487)
-  + Join our CPC Annoiting Team (Val Myers)
+  + Join our CPC Annoiting Team (Val Myers bvm87@live.co.uk)
   + Join our St Marks Prayer Team (Cathie Hallsworth cathie.hallsworth@outlook.com & Peter Hallsworth petermhallsworth@gmail.com)
 
 + **Up & Coming Prayer Events at Clifton Parish**
