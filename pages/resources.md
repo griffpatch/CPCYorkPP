@@ -9,13 +9,18 @@ Resources
 
 Prayers for different occasions
 -------------------------------
-Prayers for different occasions written by Geraldine could go here...
+Prayers for different occasions written by Geraldine (watch this Space!!)
 
 
 
 Recommended reading
 -------------------
-Reading list posted here...
+Prophecy
++ Approaching the Heart of Prophecy (Graham Cooke)
++ Prophecy and Responsibility (Graham Cooke)
++ Prophetic Wisdom (Graham Cooke)
++ Basic Training for the Prophetic Ministry (Kris vallotton)
++ School of the Prophets (Kris vallotton)
 
 Our secure documents (church member login required)
 ---------------------------------------------------
