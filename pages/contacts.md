@@ -32,7 +32,7 @@ Intercession is prayer for other people – often people we don’t know and wil
 
 CPC Annoiting Prayer Team
 -----------------
-Val Myers 
+Val Myers bvm87@live.co.uk
 
 
 CPC Prayer Ministry
