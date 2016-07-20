@@ -41,6 +41,8 @@ Susie Young Email:susieinyork@gmail.com
 
 Mits Griffin Email:mits@griffpatch.co.uk
 
+Our Prayer ministry is predominantly a prayer of blessing over individuals through the laying on of hands. This is done confidentially and with as much honour and love as possible. This is not a counselling ministry and we are not permitted to give advice or councel (for counselling please contact: David Casswell <davecasswell@gmail.com> or The Spuriergate Centre). If you think you might like to join our Prayer Ministry Team at Clifton Parish, please do contact us and we can give you more info and train you up. We always work in pairs so you will never minister alone. In order to be part of our rota you will need to give us your term's availability in advance.
+
 
 St Marks
 --------
