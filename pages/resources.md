@@ -7,9 +7,14 @@ description: Prayer & Prophecy Resources
 Resources
 =========
 
+Exploring Prayer
+----------------
+(New Section coming soon!!)
+
+
 Prayers for different occasions
 -------------------------------
-Prayers for different occasions written by Geraldine (watch this space!!)
+Prayers for different occasions (coming in the future!!)
 
 
 
