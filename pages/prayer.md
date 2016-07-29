@@ -43,7 +43,7 @@ If you would like to grow in prayer
 + **Up & Coming Prayer Events across our City**
   + The Gathering at the YHoP: Join with other churches across our city to pray and worship (<http://www.yhop.co.uk/>)
   + The BURN: Join with other churches across our city to pray and worship (<https://www.facebook.com/BurnYork/>)
-  + St Bede's PDS Course (Contact Geraldine Casswell)
+  + St Bede's PDS Course: Please note the latest course is now FULLY BOOKED (Please contact Geraldine Casswell for future details)
 
   
 Our condensed Prayer Ministry Guidelines
