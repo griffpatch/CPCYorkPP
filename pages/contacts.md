@@ -44,7 +44,7 @@ Susie Young Email:susieinyork@gmail.com
 
 Mits Griffin Email:mits@griffpatch.co.uk
 
-Prayer ministry here at CPC, comprises of a prayer of blessing over individuals through the laying on of hands. This is done confidentially and with as much honour and love as possible. This is not a counselling ministry and we are not permitted to give advice or councel. If you think you might like to join our Prayer Ministry Team at Clifton Parish, please do contact us and we can give you more info and train you up. We always work in pairs so you will never minister alone. New ministers will always be partnered with experienced ones since we love to support and grow one another. In order to be part of our rota you will need to be dedicated to this ministry, giving us your term's availability in advance although it's no problem if you have terms when you are unable to minister in. 
+Prayer ministry here at CPC is predominantly a prayer of blessing over individuals through the laying on of hands. This is done confidentially and with as much honour and love as possible. This is not a counselling ministry and we are not permitted to give advice or councel. If you think you might like to join our Prayer Ministry Team here at Clifton Parish, please do contact us and we can give you more info and train you up too. We always work in pairs so you will never minister alone, and new members will always be partnered with experienced ones since we love to support and grow one another. In order to be part of our rota you will need to be dedicated to this ministry - giving us your term's availability in advance. 
 
 
 St Marks
