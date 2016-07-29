@@ -10,16 +10,16 @@ If you’d like more info on Prayer and Prophetic Ministry here at Clifton Paris
 
 Church Leadership
 -----------------
-David Casswell (01904) 655071 Email:davecasswell@gmail.com
+David Casswell (01904) 655071 Email: davecasswell@gmail.com
 
-Peter Hallsworth (01904) 637335 Email:petermhallsworth@gmail.com
+Peter Hallsworth (01904) 637335 Email: petermhallsworth@gmail.com
 
 
 Prayer Chain
 ------------
 Margaret Horsely (01904) 621810
 
-David Casswell (01904) 655071 Email:davecasswell@gmail.com
+David Casswell (01904) 655071 Email: davecasswell@gmail.com
 
 The prayer chain is a way to inform people of prayer needs quickly. The requests are emailed and phoned out with brief details. Each person responds to the request in their own way and own time. In order to place someone on the prayer chain you must first ask their permission. Then the request is emailed or phoned to one of the staff or Margaret Horsely, details on info2go.
 
@@ -35,23 +35,23 @@ Intercession is prayer for other people – often people we don’t know and wil
 
 CPC Anoiting Prayer Team
 -----------------
-Val Myers bvm87@live.co.uk
+Val Myers Email: bvm87@live.co.uk
 
 
 CPC Prayer Ministry
 -------------------
-Susie Young Email:susieinyork@gmail.com
+Susie Young Email: susieinyork@gmail.com
 
-Mits Griffin Email:mits@griffpatch.co.uk
+Mits Griffin Email: mits@griffpatch.co.uk
 
 Prayer ministry here at CPC is predominantly a prayer of blessing over individuals through the laying on of hands. This is done confidentially and with as much honour and love as possible. This is not a counselling ministry and we are not permitted to give advice or councel. If you think you might like to join our Prayer Ministry Team here at Clifton Parish, please do contact us and we can give you more info and train you up too. We always work in pairs so you will never minister alone, and new members will always be partnered with experienced ones since we love to support and grow one another. In order to be part of our rota you will need to be dedicated to this ministry - giving us your term's availability in advance. 
 
 
 St Marks
 --------
-Cathie Hallsworth Email:cathie.hallsworth@outlook.com
+Cathie Hallsworth Email: cathie.hallsworth@outlook.com
 
-Peter Hallsworth (01904) 637335 Email:petermhallsworth@gmail.com
+Peter Hallsworth (01904) 637335 Email: petermhallsworth@gmail.com
 
 
 Clifton Moor Church
