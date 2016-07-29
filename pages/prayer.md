@@ -21,21 +21,21 @@ If you need prayer
 
 +	**Anoiting ministry:** At our Communion Services we offer Annoiting with oil. Do come up for this blessing when directed.
 
-+	**SOZO ministry:** SOZO is an inner healing and deliverance ministry (with sessions usually lasting between 1-1.5 hours). Although we do not offer this Ministry within Clifton Parish, this ministry is available for all church-goers from 2017 at the York House of Prayer (YHoP). Please see the YHoP website for more info: <http://www.yhop.co.uk/>
++	**SOZO ministry:** SOZO is an inner healing and deliverance ministry (with sessions usually lasting between 1-1.5 hours). Although we do not offer this Ministry within Clifton Parish, this ministry is available for all church-goers from 2017 at the York House of Prayer (YHoP). For more info please contact Mits Griffin mits@griffpatch.co.uk or do check the YHoP website for more info: <http://www.yhop.co.uk/>
 
 If you would like to grow in prayer
 -----------------------------------
 
 + **Join one of our prayer teams**
   + Join our CPC Prayer Ministry team (Contact details Susie Young susieinyork@gmail.com & Mits Griffin mits@griffpatch.co.uk)
-  + Join our CPC 11am service intercessions team (Monica Dunham  monicadunham@dsl.pipex.com or 07875-089487)
+  + Join our CPC 11am service intercessions team (Monica Dunham monicadunham@dsl.pipex.com or 07875-089487)
   + Join our CPC Annoiting Team (Val Myers bvm87@live.co.uk)
   + Join our St Marks Prayer Team (Cathie Hallsworth cathie.hallsworth@outlook.com & Peter Hallsworth petermhallsworth@gmail.com)
 
 + **Up & Coming Prayer Events at Clifton Parish**
   + Come to our Monday Prayer Meeting: 9-9.45am Mondays Clifton Parish
   + Come to our Saturday Early Prayers St Marks: 8.30-9.30am Saturdays St Marks
-  + Come to PIP (Prophetic Intercession for our Parish): First Saturday every month, St Marks, 9.30-10.30am (Contact mits mits@griffpatch.co.uk & Susie for more info susieinyork@gmail.com)  
+  + Come to PIP (Prophetic Intercession for our Parish): Typically first Saturday every month, St Marks, 9.30-10.30am (Contact mits mits@griffpatch.co.uk & Susie susieinyork@gmail.com for more info and to check venue/time amendments)  
   + Come to our CPC 11am Service pre-service prayers: Every Sunday at Clifton Parish, 10.30am-11am, Melrose Room
   + Come to our Prayer Ministry Training sessions (Next Training: October 2016 "Different ways to Pray")
   + Links to any events that can be booked online (24/7 prayer) Watch this Space!!
