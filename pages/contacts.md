@@ -61,5 +61,5 @@ http://www.cliftonmoor.org.uk/Prayer_request.html
 
 St Bedes Course
 ---------------
-Geraldine Casswell 
+For more info please do contact Geraldine Casswell (NB.the latest PDS course is now fully booked)
 
