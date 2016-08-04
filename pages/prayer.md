@@ -33,11 +33,11 @@ If you would like to grow in prayer
   + Join our St Marks Prayer Team (Cathie Hallsworth cathie.hallsworth@outlook.com & Peter Hallsworth petermhallsworth@gmail.com)
 
 + **Up & Coming Prayer Events at Clifton Parish**
-  + Come to our Monday Prayer Meeting: 9-9.45am Mondays Clifton Parish
-  + Come to our Saturday Early Prayers St Marks: 8.30-9.30am Saturdays St Marks
-  + Come to PIP (Prophetic Intercession for our Parish): Typically first Saturday every month, St Marks, 9.30-10.30am (Contact mits mits@griffpatch.co.uk & Susie susieinyork@gmail.com for more info and to check venue/time amendments)  
-  + Come to our CPC 11am Service pre-service prayers: Every Sunday at Clifton Parish, 10.30am-11am, Melrose Room
-  + Come to our Prayer Ministry Training sessions (Next Training: October 2016 "Different ways to Pray")
+  + Come to our **Monday Prayer Meeting**: 9-9.45am Mondays Clifton Parish
+  + Come to our **Saturday Early Prayers** St Marks: 8.30-9.30am Saturdays St Marks
+  + Come to **PIP** (Prophetic Intercession for our Parish): Typically first Saturday every month, St Marks, 9.30-10.30am (Contact mits mits@griffpatch.co.uk & Susie susieinyork@gmail.com for more info and to check venue/time amendments)  
+  + Come to our CPC 11am Service **Pre-service prayers**: Every Sunday at Clifton Parish, 10.30am-11am, Melrose Room
+  + Come to our Prayer Ministry **Training** sessions (Next Training: October 2016 "Different ways to Pray")
   + Links to any events that can be booked online (24/7 prayer) Watch this Space!!
 
 + **Up & Coming Prayer Events across our City**
