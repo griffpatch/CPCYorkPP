@@ -73,7 +73,7 @@ We want to be channels of God’s amazing grace and serve out of love and compas
 +	We will NOT stray into counselling; pray loudly in tongues; or advise/suggest/hint any discontinuation of medical treatment or medicine
 +	We will not give directives about jobs, marriage, births or deaths
 +	We will not give teaching 
-+	We will always minister to you in pairs for accountability and safety
++	We will always minister to you in a team of two for accountability and safety
 
 NB. Our full guidelines are posted in our secure resources area.
 
