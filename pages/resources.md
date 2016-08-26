@@ -40,6 +40,7 @@ http://www.sacredspace.ie/daily-prayer  This is a site put together by the Jesui
 https://www.churchofengland.org/prayer-worship/join-us-in-daily-prayer.aspx  This is the Church of England site which enables you to pray a daily office.
 
 https://cac.org/sign-up/ This is a site you can sign up to receive daily reflections.  These are written by Richard Rohr, a Franciscan monk, who offers some thoughtful insights to our faith journey. 
+
 http://www.northumbriacommunity.org/offices/how-to-use-daily-office/  These prayers arise from the Northumbria community and reflect a Celtic history and approach in a modern way.
 
 
