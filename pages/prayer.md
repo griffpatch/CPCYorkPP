@@ -26,6 +26,8 @@ If you need prayer
 If you would like to grow in prayer
 -----------------------------------
 
++ **Please have a look at our (Prayer & Prophecy) resource section for ideas in growing in prayer**
+
 + **Join one of our prayer teams**
   + Join our CPC Prayer Ministry team (Contact details Susie Young susieinyork@gmail.com & Mits Griffin mits@griffpatch.co.uk)
   + Join our CPC 11am service intercessions team (Monica Dunham monicadunham@dsl.pipex.com or 07875-089487)
