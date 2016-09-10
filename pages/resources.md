@@ -7,6 +7,19 @@ description: Prayer & Prophecy Resources
 Resources
 =========
 
+Up and Coming Events
+--------------------
+**Randy Clarke Monday 12th September St Michael le Belfrey**
+
+Randy Clarke, the founder of Global Awakening and most known for hisinternational healing ministry, will be sharing and ministering in two session at St Michael le Belfrey (SMLB) here in York. 2-4.30pm Will be a session for Church Leaders & those in Ministry; 7-9.30pm a Healing Service and Celebration, open to all. For more Info check out http://www.belfrey.org/uploads/2/9/6/0/2960825/randy-clark-final-design_1_orig.jpg
+
+**Prayer ministry Training Saturday October 1st in the Belfrey hall from 9.30am -1pm**
+
+Run by St Michael le Belfrey, a training morning for all those in Prayer Ministry. The title for the morning is “Made in the image of God” and our speaker is Rev Mary Jobling who is a Fresh Expressions curate from Scarborough. The event comprises two sessions: “Praying out my identity in God” and "Praying out someone else’s identity in God”. There will be time to worship, have Q & A , and the opportunity to pray together. All are welcome. Please let mits know if you are intending to go (to pass rough numbers on so they have enough tea/coffee available!!) and NB. There will be no PIP on this morning.
+
+
+
+
 Exploring Prayer
 ----------------
 Most people have prayed at some stage in their life.  It might have been in a crisis (please God make them better), it might have been a bit of a bargaining tool (please God if you get me out of this I’ll….) or it might have been a rush of gratitude (wow the baby has arrived safely- thank you God).  We were made to be in relationship with one another and with our creator God.  But quite often we can get into patterns in our relationships that help us initially but then we can get into a rut.  The same happens in prayer.  
