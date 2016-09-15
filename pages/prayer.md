@@ -21,7 +21,7 @@ If you need prayer
 
 +	**Anoiting ministry:** At our Communion Services we offer Annoiting with oil. Do come up for this blessing when directed.
 
-+	**SOZO ministry:** SOZO is an inner healing and deliverance ministry (with sessions usually lasting between 1-1.5 hours). Although we do not offer this Ministry within Clifton Parish, this ministry is available for all church-goers from October 2016 at the York House of Prayer (YHoP) under the covering of St Michael le Belfrey Church. For more info in person, chat with Mits Griffin (who is part of the York SOZO team) or do check the YHoP website or SMLB for more info and bookings: <http://www.yhop.co.uk/> and/or  http://www.belfrey.org/ or find out more from Bethel SOZO UK http://www.bethelsozo.org.uk/
++	**SOZO ministry:** SOZO is an inner healing and deliverance ministry (with sessions usually lasting between 1-1.5 hours). Although we do not offer this Ministry within Clifton Parish, this ministry is available for all church-goers from October 2016 at the York House of Prayer (YHoP) under the covering of St Michael le Belfrey Church. For more info do check the YHoP website or SMLB for more info and bookings: <http://www.yhop.co.uk/> and/or  http://www.belfrey.org/ or find out more from Bethel SOZO UK http://www.bethelsozo.org.uk/ If you'd like to find out a bit more informally, do chat with Mits Griffin (who is part of the York SOZO team).
 
 If you would like to grow in prayer
 -----------------------------------
