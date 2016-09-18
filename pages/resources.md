@@ -12,7 +12,7 @@ For members of our Ministry Team...
 [Click here to view secure documents](https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing)
 
 +	Our Prayer Ministry Guidelines
-+	Prayer Ministry TRAINING Notes
++	Getting Trained in Prayer Ministry
 +	Guidelines to weighing prophecy
 +	Training Session 1: Praying for Healing
 +	Training Session 2: Hearing God
