@@ -9,7 +9,7 @@ Resources
 
 For members of our Ministry Team (via access to GoogleDocs) 
 -----------------------------------------------------------
-[Click here to login and view secure documents](https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing)
+[Click here to view secure documents](https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing)
 
 +	Our Prayer Ministry Guidelines
 +	Prayer Ministry TRAINING Notes
