@@ -12,9 +12,13 @@ For members of our Ministry Team (via access to GoogleDocs)
 [Click here to login and view secure documents](https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing)
 
 +	Our Prayer Ministry Guidelines
-+	Our Prayer Ministry Training Notes
-+	Our Prophetic Ministry Weighing Guidelines
-+	PIP Documents
++	Prayer Ministry TRAINING Notes
++	Guidelines to weighing prophecy
++	Training Session 1: Praying for Healing
++	Training Session 2: Hearing God
++	Prophecy Feedback Form
++	PIP (Prophetic Intercession for our Parish) Docs
++	Sandwich Prayer
 
 
 Up and Coming Events
