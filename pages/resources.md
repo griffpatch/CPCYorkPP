@@ -7,6 +7,15 @@ description: Prayer & Prophecy Resources
 Resources
 =========
 
+For members of our Ministry Team (via access to GoogleDocs) 
+-----------------------------------------------------------
+[Click here to login and view secure documents](https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing)
++	Our Prayer Ministry Guidelines
++	Our Prayer Ministry Training Notes
++	Our Prophetic Ministry Weighing Guidelines
++	PIP Documents
+
+
 Up and Coming Events
 --------------------
 **Prayer ministry Training Saturday October 1st in the Belfrey hall from 9.30am -1pm**
@@ -14,7 +23,8 @@ Up and Coming Events
 Run by St Michael le Belfrey, a training morning for all those in Prayer Ministry. The title for the morning is “Made in the image of God” and our speaker is Rev Mary Jobling who is a Fresh Expressions curate from Scarborough. The event comprises two sessions: “Praying out my identity in God” and "Praying out someone else’s identity in God”. There will be time to worship, have Q & A , and the opportunity to pray together. All are welcome. Please let mits know if you are intending to go (to pass rough numbers on so they have enough tea/coffee available!!) and NB. There will be no PIP on this morning.
 
 
-
+For anybody interested in growing in Prayer/Prophecy (we hope these help):
+-----------------------------------------------------------------
 
 Exploring Prayer
 ----------------
@@ -74,13 +84,3 @@ Prophecy
 + Basic Training for the Prophetic Ministry (Kris Vallotton)
 + School of the Prophets (Kris Vallotton)
 
-Our secure documents (church member login required)
----------------------------------------------------
-+	Our Prayer Ministry Guidelines
-+	Our Prayer Ministry Training Notes
-+	Our latest Prayer Ministry Rota for the term
-+	Our Prophetic Ministry Weighing Guidelines
-+	PIP Documents
-+	Prayer Team Important Dates (e.g. meetings with leadership etc.)
-
-[Click here to login and view secure documents](https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing)
