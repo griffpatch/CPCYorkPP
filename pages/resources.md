@@ -7,8 +7,8 @@ description: Prayer & Prophecy Resources
 Resources
 =========
 
-For members of our Ministry Team 
---------------------------------
+For members of our Ministry Team... 
+-----------------------------------
 [Click here to view secure documents](https://drive.google.com/a/griffpatch.co.uk/folderview?id=0B7pX1TZkA3yrSmdlLTYtdnRQckU&usp=sharing)
 
 +	Our Prayer Ministry Guidelines
@@ -28,8 +28,8 @@ Up and Coming Events
 Run by St Michael le Belfrey, a training morning for all those in Prayer Ministry. The title for the morning is “Made in the image of God” and our speaker is Rev Mary Jobling who is a Fresh Expressions curate from Scarborough. The event comprises two sessions: “Praying out my identity in God” and "Praying out someone else’s identity in God”. There will be time to worship, have Q & A , and the opportunity to pray together. All are welcome. Please let mits know if you are intending to go (to pass rough numbers on so they have enough tea/coffee available!!) and NB. There will be no PIP on this morning.
 
 
-For anybody interested in growing in Prayer/Prophecy (we hope these help):
------------------------------------------------------------------
+For anybody interested in growing in Prayer/Prophecy...
+-------------------------------------------------------
 
 Exploring Prayer
 ----------------
