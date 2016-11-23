@@ -35,8 +35,8 @@ Prophets vs False Prophecy vs Immaturity. Cost: £9/ £6 concession. For more in
 
 9.30am-10.30am at St Marks
 
-
-
+**St Cuthberts: The York House of Prayer**
+Join in our city-wide ventures at the YHoP. The YHoP has a weekly rhythm of open gatherings on Tuesday and Thursday mornings (10-12pm), Wednesday afternoons (2-4pm) and alternate Monday evenings (7-9pm). Find the YHoP at St Cuthberts, Peasholme Green, York, YO1 7PW
 
 
 For anybody interested in growing in Prayer/Prophecy...
