@@ -31,6 +31,12 @@ Prophets vs False Prophecy vs Immaturity. Cost: £9/ £6 concession. For more in
 
 
 
+**Saturday 3rd December PIP (Prophetic Intercession for our Parish)** 
+
+9.30am-10.30am at St Marks
+
+
+
 
 
 For anybody interested in growing in Prayer/Prophecy...
