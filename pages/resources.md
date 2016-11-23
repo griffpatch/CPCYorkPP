@@ -23,9 +23,14 @@ For members of our Ministry Team...
 
 Up and Coming Events
 --------------------
-**Prayer ministry Training Saturday October 1st in the Belfrey hall from 9.30am -1pm**
+**Wednesday Evenings (Nov 23rd -Dec 7th) Prophecy Course 2.0**
 
-Run by St Michael le Belfrey, a training morning for all those in Prayer Ministry. The title for the morning is “Made in the image of God” and our speaker is Rev Mary Jobling who is a Fresh Expressions curate from Scarborough. The event comprises two sessions: “Praying out my identity in God” and "Praying out someone else’s identity in God”. There will be time to worship, have Q & A , and the opportunity to pray together. All are welcome. Please let mits know if you are intending to go (to pass rough numbers on so they have enough tea/coffee available!!) and NB. There will be no PIP on this morning.
+SMLB will be launching an advanced training in the prophetic end of November running for 3 evenings only. This course is building on the
+teaching of any of the basic trainings (8-Week Course, 5-Week Course, Training Day, Book a Prophet), so having completed one of those courses is pre-requisite. The advanced training will take place over three weeks and will comprise worship, biblical teaching, prophetic exercises, and small group times. The teaching deals with Removing Hindrances & Making Room for the New, including correctional and directional prophecies; Holiness, including the Office of a Prophet; Communicating God’s Word, including False
+Prophets vs False Prophecy vs Immaturity. Cost: £9/ £6 concession. For more information do fill in the form on this webpage http://www.belfrey.org/prophecy-training.html (or talk with Mits)
+
+
+
 
 
 For anybody interested in growing in Prayer/Prophecy...
